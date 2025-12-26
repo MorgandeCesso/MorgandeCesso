@@ -5,7 +5,7 @@
 Заполярного государственного университета им. Н. М. Федоровского  
 
 Assistant Lecturer at the Department of **Information Systems and Technologies**  
-Zapolyarny State University named after N. M. Fedorovsky
+Polar State University named after N. M. Fedorovsky
 
 ---
 
